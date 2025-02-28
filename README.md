@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything you need
 - 📫 How to reach me: lucasjosepauk11@gmail.com 
 - 😄 Pronouns: $
-- ⚡ Fun fact: I play video games and invest in B3
+- ⚡ Fun fact: I play video games and invest in crypto
 
 <!---
 Lucassantos1001/Lucassantos1001 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
